@@ -1,3 +1,7 @@
-Everything you see on my GitHub is free work that I did for someone that im giving away for free!
+Minecraft 3 Year Skript Dev
 
-Have fun with it!
+Everything you see on my GitHub
+It's free work that I've done for someone!
+
+So I decided to give all this work away on
+GitHub for free
